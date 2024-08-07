@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @gibxy
+- 👀 I’m interested in progressing
+- 🌱 I’m currently learning hardware n programming
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ?you need them?
+- ⚡ Fun fact: ...
+
+
